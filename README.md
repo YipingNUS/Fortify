@@ -24,7 +24,8 @@ As simple as it sounds, this skill can be honed, polished and refined as a kille
 
 # Powerful Quotes
 
-> “Between stimulus and response, there is a space. In that space is our power to choose our response, and in our response lies our growth and our freedom.” - Victor Frankl, a renowned therapist and Holocaust survivor
+> “Between stimulus and response, there is a space. In that space is our power to choose our response, and in our response lies our growth and our freedom.” 
+-- Victor Frankl, Holocaust survivor
 
 # Watch the lessons
 
